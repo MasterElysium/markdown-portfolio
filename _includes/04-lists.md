@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+*  Playing and creating Video Games
+*  Creative writing, editting and formatting
+*  Roleplaying
+*  2D and 3D modeling and animations
